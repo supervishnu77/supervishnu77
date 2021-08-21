@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @supervishnu77
+- 👀 I’m interested in tech development
+- 💞️ I’m looking to collaborate with application developers for my new project on the revenue share.
+- 📫 reach me at supervishnu77@gmail.com
